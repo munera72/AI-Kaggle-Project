@@ -3,4 +3,4 @@ Julián Mateo Naranjo Serna - 1035439398 - Ing. De Sistemas
 Emanuel Munera Pérez - 1007090326 - Ing. De Sistemas
 
 
-Video Entrega 2: https://youtu.be/UWJw1o2snXQ?si=qa6L9kYgmltEyOT1
+Video Final: https://youtu.be/5V-YuNnzW3Q?si=N-cd83tz9-J9mfix
